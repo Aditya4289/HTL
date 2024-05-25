@@ -7,3 +7,5 @@ Tujhe Dekhte Hi Tera Ho Gaya
 
 Waah Waah
 ​
+
+thukra ke mera pyar mera intkam dekhegi
