@@ -63,6 +63,6 @@ After inputting your parameters, the application will generate a day-by-day itin
 - Estimated costs and budget allocation.
 - Travel tips and recommendations for a memorable trip.
 
-
+With ❤ by team Algorithm Aces
 
 
