@@ -12,4 +12,4 @@ thukra ke mera pyar mera intkam dekhegi
 ABhay  Mittal
 
 
-abhay gandu
+abhay c*******
